@@ -1,5 +1,8 @@
-### Hi there 👋
+### augustus<3
 
+-Hello, my name is augustus/lumine. I'm a he/they transmasc little fellah :) 
+![BaggyScentedIchthyostega-size_restricted](https://user-images.githubusercontent.com/106342847/170759331-bd0582dc-4d91-46c2-95b5-4cbaa6d4fb2a.gif)
+This is my favorite little guy^^ i love opossums! please talk to me! my interests are animals, anatomy in animals, moths, spiders, SNAKES!! etc. i'm bisexual and i want to find new people to talk to! it could be you!!!! send me a whisper<3
 <!--
 **banesworld/banesworld** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
